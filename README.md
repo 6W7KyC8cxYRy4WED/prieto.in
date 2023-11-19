@@ -1,1 +1,1 @@
-# prieto.in
+qr.okaminotochi.cl
